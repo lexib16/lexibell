@@ -6,7 +6,7 @@ Hi there 👋
 - 👯 I’m looking to collaborate on IT with everyone.
 - 🤔 I’m looking for help with finding my next position.
 - 💬 Ask me about Git.
-- 📫 How to reach me: stefanorafe@gmail.com
+- 📫 How to reach me: lexio9211@gmail.com
 - 😄 Pronouns: We only...
 - ⚡ Fun fact:
 
